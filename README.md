@@ -1,0 +1,1 @@
+You must effort, everybody may help you, but only you can make yourself。
